@@ -1,0 +1,2 @@
+# begu
+Mengubah ekonomi
